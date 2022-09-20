@@ -1,2 +1,2 @@
-https://uupload.ir/view/images_(2)_xpkh.jpeghttps://s6.uupload.ir/files/images_(2)_xpkh_thumb.jpeg https://s6.uupload.ir/files/images_(2)_xpkh.jpeg
 
+https://github.com/kasrakord00134/http-dscript-sxs1-39-39typer-filterigigfa.com-dxprit.ht.l/edit/main/README.md
